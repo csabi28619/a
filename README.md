@@ -1,1 +1,1 @@
-# Sanyi repója
+# Sanyi és Csabi repója
